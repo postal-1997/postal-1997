@@ -1,3 +1,1 @@
-wip
-
-i like violent video games :3 
+Hi oomfies hii hiii!!!! hiii!!!!
