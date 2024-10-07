@@ -1,4 +1,4 @@
-![]
+
 ![church/p1](https://file.garden/ZwJJ__yFCBBq7Txo/3r500w.gif)
 ![tcc dni i don't like any of you](https://file.garden/ZwJJ__yFCBBq7Txo/cooltext467759001819754.gif)
 
