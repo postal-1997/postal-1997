@@ -1,4 +1,5 @@
-![tcc dni i don't like any of you](https://file.garden/ZwJJ__yFCBBq7Txo/cooltext467759001819754.gif)
+![zero day fans are on very thin ice](https://file.garden/ZwJJ__yFCBBq7Txo/cooltext467844798137236.gif)
+![TCC DO NOT INTERACT. I DO NOT LIKE U.](https://file.garden/ZwJJ__yFCBBq7Txo/cooltext467844879096049.gif)
 
 ![](https://64.media.tumblr.com/10a34d9aaf866a4cbb0bc76e2591b5eb/944a888989f9d9d9-f9/s2048x3072/d8f9e0098c377b8c9bb93d1f49d6fb8a048bba67.png)
 ![](https://adriansblinkiecollection.neocities.org/stamps/d65.png) ![](https://adriansblinkiecollection.neocities.org/stamps/d87.png)![JLJ / JESUS LOVES JUNKIES](https://64.media.tumblr.com/6fbb3b22235c3bed3a4a46a6ba26d318/a5a362e6ab83f43f-9d/s100x200/8882a2923117ac96ee72631a673ba5c42ea4a7a4.png) ![POSTAL REDUX](https://64.media.tumblr.com/0c2c504e3726516ec87b5262ac4a2e35/79d8b316934d24c3-22/s100x200/ef07b611bf98d9399b2a84bf10eacf8473cf3862.png) ![KMFDM](https://64.media.tumblr.com/7727558d37aa33a0f5cfe7511de21197/0ff738aae3bed445-ee/s100x200/85a5ff883c53274a4cf31a196ca1aac56afcc2eb.png) ![](https://64.media.tumblr.com/954547a07fc0cd0c7fde5e29443d3e4e/216ca0da85ae40a1-87/s100x200/88496312a96277a2d263b01c868524c0f2eda607.gif)  ![](https://adriansblinkiecollection.neocities.org/stamps/d42.gif) ![](https://adriansblinkiecollection.neocities.org/stamps/d29.png) 
