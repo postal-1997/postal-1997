@@ -3,7 +3,7 @@
 
 ![](https://64.media.tumblr.com/10a34d9aaf866a4cbb0bc76e2591b5eb/944a888989f9d9d9-f9/s2048x3072/d8f9e0098c377b8c9bb93d1f49d6fb8a048bba67.png)
 [![graphic hoard](https://file.garden/ZwJJ__yFCBBq7Txo/graphichoard.png)](https://rentry.co/dudes-stamp-hoard)
-
+[![text only straw.page](https://file.garden/ZwJJ__yFCBBq7Txo/textonly.png)](https://jesuslovesjunkies.straw.page/textonly)
 
 
 
