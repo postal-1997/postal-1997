@@ -1,10 +1,13 @@
 i don't fw endogenic "systems", the tcc, radqueer, proship/darkship/whatever, bigots, and nazis. GO AWAY.
 
+=================================
 
-hey this is for everyone commenting about cal on my atabook:
-
-go to his.
+In correlation to my cal: this is his atabook, please leave me (church) alone.
 
 https://guitarfucker97.atabook.org/
 
- also we don't condone school shootings nor do we EVEN LIKE THAT SHIT????? just because i like true crime doesn't mean i'm associated with those tcc freaks and i don't even want them near me. 
+=================================
+
+General statement:
+
+Nobody in my system condones or supports violence against children, including school shootings. The fact that someone can do such things disturbs us, and it almost happened to us in real life. We're morbidly curious about true crime and the psychology of school shooters. Never in our **life** will you find us condoning or romanticizing that behavior. Please understand that Calvin has been around for a long time and does not condone such behavior.
