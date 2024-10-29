@@ -4,7 +4,7 @@ i don't fw endogenic "systems", the tcc, radqueer, proship/darkship/whatever, bi
 
 In correlation to my cal: this is his atabook, please leave me (church) alone.
 
-https://guitarfucker97.atabook.org/
+https://muzzleboy.atabook.org/
 
 =================================
 
